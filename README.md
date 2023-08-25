@@ -8,10 +8,10 @@ Wallpapers from- Multiple Websites
 
 idk if they are copyrighted or not, 
 
-Link (mediafire) - 
+Link (mediafire) - https://www.mediafire.com/file/ipqx6tmhis64l7y/carbonpapers.zip/file (mediafire)
 
-Link (mirror) - 
+Link (mirror) - https://drive.google.com/file/d/1E_GteglDXiC7yON1oSElPz4wx2pEPX5c/view?usp=sharing (google drive) 
 
-Link (mirror2) - 
+Link (mirror2) - (mega.nz) 
 
 Discord - @carbonowl 
